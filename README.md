@@ -1,4 +1,3 @@
-# gemmagh1711.github.io
 
 Gemma Ghalloub
 S00289961
